@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Ryabaa77
 - 👀 I’m interested in Coding 
 - 🌱 I’m currently learning Python
-- 💞️ I’m looking to collaborate on ..
+- 💞️ I’m looking to collaborate on anything =)
 - 📫 How to reach me: ryabaahd@gmail.com
 
 <!---
